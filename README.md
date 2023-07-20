@@ -1,2 +1,2 @@
 # XXXTENTACION
-My favourite Singer
+My favorite Singer 
